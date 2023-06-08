@@ -1,0 +1,1 @@
+# Deteksi_Sapi--Metnum_Project
